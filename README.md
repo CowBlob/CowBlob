@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CowBlob
 - 👀 I’m interested in 3D and gameDev
 - 🌱 I’m always learning 
-- 📫 How to reach me on Twitter at "@Cts_lev"
+- 📫 How to reach me on Twitter at "@Cts_lev" "https://twitter.com/cts_lev"
 - 🫥 Also on Youtube at "CowBlob" "https://www.youtube.com/channel/UCPrCwxEY5cdPdKWetPkW3bg"
 - 😶 On Twitch at "CowBlob" "https://www.twitch.tv/cowblob"
