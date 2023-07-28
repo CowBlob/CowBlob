@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @CowBlob
-- 👀 I’m interested in 3D and gameDev
+- 👀 I’m interested in art
 - 🌱 I’m always learning 
